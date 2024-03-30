@@ -9,5 +9,6 @@ I am passionate about lifelong learning and constantly seek opportunities to exp
 ## ⚠️ Disclaimer
 This README provides an overview of my learning journey, showcases my certificates.
 
+Please dont use this for **unwanted** purposes.
 
 Please contact me for clarifications.😄
